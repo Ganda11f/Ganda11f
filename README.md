@@ -1,5 +1,3 @@
-### Hi there 👋
-
 Hello there 👋
 
 👾My name is Lucas Guedes, i'm 21 years old and I study at Senac college. 
